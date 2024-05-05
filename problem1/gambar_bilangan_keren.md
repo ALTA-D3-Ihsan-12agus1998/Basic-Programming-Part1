@@ -1,1 +1,0 @@
-![bilangan_keren](https://github.com/ALTA-D3-Ihsan-12agus1998/Basic-Programming-Part1/assets/34038505/bbef3175-8ea3-44d4-848c-37a6107d25ed)
